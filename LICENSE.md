@@ -1,4 +1,4 @@
-#  
+#  automatic dragon adventures Script is the best dragon adventures Script, featuring esp and instant win. Safe and powerful for all your needs.
 
 
 
